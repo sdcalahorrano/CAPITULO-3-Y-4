@@ -196,6 +196,7 @@ SECCIÓN 4–5 Fuentes de potencia
 
 # 4. VIDEO
 
+https://youtu.be/2pIkOixT2UY
 
 # 5. CONCLUSIONES
 
